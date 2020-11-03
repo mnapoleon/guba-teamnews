@@ -1,0 +1,8 @@
+Looking back at the what stuck from my rule 5 draft the Showboats ended up keeping three fo the five players drafted.
+
+[url=http://www.thefibb.net/news/html/players/player_53084.html]Alexander Felgate[/url] ended up being the first player selected in the entire rule 5 draft.  Felgate was added to my list as a depth piece for the infield and was in the part of my list where I didn't so much ranked the guys in order I really wanted them but rather the filler bottom part of the list.  I think he was somewhere around the 16-20 range on a list of the about 30-35 guys.  Normally at that point in the list I tend to just lump guys together.
+Felgate did end up with an injury and I buried him on the 60-day DL when that happened as I didn't expect him to make the active roster anyway at that point.
+
+I also held on to two pitchers I swiped from the Crusaders.  Starting pitcher [url=http://www.thefibb.net/news/html/players/player_60179.html]Zotico Sakellariou[/url] I put on the list because he was injured and had hoped to move him to the 60-day DL after he was drafted but the game wouldn't allow it so he ended up on the active roster and is currently in the starting rotation despite pitching just 2.1 innning in short-A ball last season.  Probably should put him on a pitch count but if he gets hurts I can always stash him.
+
+[url=http://www.thefibb.net/news/html/players/player_56757.html]Luis Salas[/url] was the other player I held on to.  The former Crusaser was pretty good splitting the 2069 season between short-A and single A.  I'm sure some of that was he is fully developed and should probably have been in AAA.  At the moment he is just middle relief fodder for the Showboats but could start in a pinch if need be.
